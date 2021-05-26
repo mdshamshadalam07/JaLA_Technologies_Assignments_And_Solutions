@@ -1,0 +1,1 @@
+# JaLA_Technologies_Assignments_And_Solutions
